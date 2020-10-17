@@ -13,4 +13,8 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+--> YO I'm The Hottest Bot Here
+Oh Shut The Fuck Up
+I Have Never Liked You
+I'm A Boss Ass Bitch
+Calm The Fuck Down
